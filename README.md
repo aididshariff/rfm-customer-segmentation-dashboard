@@ -79,7 +79,7 @@ Built in Tableau with:
 
 **Aidid Shariff Alwi**
 sharifaidid4@gmail.com
-[LinkedIn](www.linkedin.com/in/aidid-alwi-6828a22a3)
+[LinkedIn](linkedin.com/in/aidid-alwi-6828a22a3)
 [Tableau[(https://public.tableau.com/app/profile/aidid.alwi)
 
 ---
